@@ -1,4 +1,4 @@
 ### Hi there 👋
 
-- 🔭 I’m currently working on experimental psycological experiments
+- 🔭 I’m currently working on experimental psychological experiments
 - 🌱 Research Psychology
